@@ -6,8 +6,6 @@ At the moment we are creating JavaScript, Schema.org , Open Graph, optimize HTML
 Write programs for ArchiCAD, Revit, Photoshop, AutoCAD, 3DsMAX Corona/ V-Ray, Artlantis, SketchUp, CorelDRAW, Adobe illustrator.
 
 Contact us:
-mail.proid.studio@gmail.com
-https://www.instagram.com/professional.interior.design/
-https://proid.studio/en/Contacts
+proid.studio@mail.ru
 
 We delve into all the technical nuances, conduct detailed author supervision and do projects at a professional level! We have accumulated valuable experience over 15 years.
